@@ -1,1 +1,1 @@
-To play this game, select playhand. 
+To play this game, select PS4a
